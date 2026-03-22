@@ -40,7 +40,7 @@ Product Strategy • Systems Thinking • Business Design
 
 ## 🌍 A Bit More
 When I’m not building or learning, I’m probably:
-- 🛩️ Flying small planes
+- at the gym
 - 🍳 Cooking (too experimentally for most people’s taste)
 - 📚 Reading philosophy or systems theory
 
